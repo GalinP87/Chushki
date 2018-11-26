@@ -1,1 +1,1 @@
-# Chushki
+# Chushki / Peppers
